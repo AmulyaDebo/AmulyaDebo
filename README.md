@@ -1,1 +1,1 @@
-### I am Amulya, an integrated mtech student from iiitb
+### I am Amulya, an integrated mtech student at iiitb
